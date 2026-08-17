@@ -1,6 +1,6 @@
 # NOW 加速官网：最新地址与套餐价格
 
-NOW 加速官网入口：[点击进入 NOW 官网](https://www.noww.cc/#/register?code=K47mZ9TV)
+NOW 加速官网入口：[点击进入 NOW 官网](https://aff.kitdude.com/now)
 
 NOW 加速提供月付订阅和永久流量套餐，月付 ¥12 起，流量从 30 GB 到 800 GB；永久流量提供 400 GB 和 1,000 GB 两档。套餐包含多地区专线、AI 解锁和部分原生家宽节点，支持从轻量个人使用到多设备大流量场景。
 
@@ -63,7 +63,7 @@ NOW 专线覆盖香港、台湾、韩国、日本、新加坡、英国、德国�
 
 ### NOW 官网地址是什么？
 
-NOW 加速官网入口为：[点击进入 NOW 官网](https://www.noww.cc/#/register?code=K47mZ9TV)。
+NOW 加速官网入口为：[点击进入 NOW 官网](https://aff.kitdude.com/now)。
 
 ### NOW 最低多少钱？
 
@@ -87,4 +87,4 @@ A2 及以上多档套餐列出了 AI 解锁支持，A3、A4 和 A7 同时提供�
 
 ## 进入 NOW 加速官网
 
-[点击进入 NOW 官网，比较月付与永久流量套餐](https://www.noww.cc/#/register?code=K47mZ9TV)
+[点击进入 NOW 官网，比较月付与永久流量套餐](https://aff.kitdude.com/now)
